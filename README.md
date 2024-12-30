@@ -104,4 +104,4 @@ Contributions are welcome! If you'd like to contribute:
 ---
 
 ## 📬 **Contact**
-For questions or feedback, feel free to reach out via email: www.linkedin.com/in/evansdzidzienyo. 
+For questions or feedback, feel free to reach out: www.linkedin.com/in/evansdzidzienyo. 
